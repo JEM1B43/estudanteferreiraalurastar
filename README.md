@@ -11,8 +11,7 @@
   𝔸𝕄𝕆 𝔸ℕ𝕀𝕄𝔸𝕀𝕊 🦜
   𝔸𝕄𝕆 𝕄𝕌𝕊𝕀ℂ𝔸🎧
 ''𝚂𝙴𝙼𝙿𝚁𝙴 𝙽𝙰 𝙲𝙰𝙻𝙼𝙰''🍀
-
-![image](https://github.com/user-attachments/assets/86beea49-8246-4283-82ab-faed0630ee7b)
+https://media1.tenor.com/m/g9WRGLK3JSwAAAAd/dog-happy-dog.gif
 
 
 
