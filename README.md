@@ -12,7 +12,7 @@
   𝔸𝕄𝕆 𝕄𝕌𝕊𝕀ℂ𝔸🎧
 ''𝚂𝙴𝙼𝙿𝚁𝙴 𝙽𝙰 𝙲𝙰𝙻𝙼𝙰''🍀
 
-![image](https://github.com/user-attachments/assets/ac609fcc-79a1-4504-9417-9071f4de2fce)
+![image](https://github.com/user-attachments/assets/ac609fcc-79a1-4504-9417-9071f4de2fce
 
 
 
