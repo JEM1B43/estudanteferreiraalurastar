@@ -12,7 +12,8 @@
   𝔸𝕄𝕆 𝕄𝕌𝕊𝕀ℂ𝔸🎧
 ''𝚂𝙴𝙼𝙿𝚁𝙴 𝙽𝙰 𝙲𝙰𝙻𝙼𝙰''🍀
 
-![]https://media1.tenor.com/m/g9WRGLK3JSwAAAAd/dog-happy-dog.gif
+![image](https://github.com/user-attachments/assets/44cfd830-cc35-4977-b2f3-4f2ba40aaa62)
+
 
 
 
